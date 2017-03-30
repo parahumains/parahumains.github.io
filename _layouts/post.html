@@ -24,8 +24,11 @@ layout: default
       {% if page.author %} • <span itemprop="author" itemscope itemtype="http://schema.org/Person"><span itemprop="name">{{ page.author }}</span></span>{% endif %}</p>
   </header>
 
+  {% include pagenav.html %}
+
   <div class="post-content" itemprop="articleBody">
     {{ content }}
   </div>
 
+  {% include pagenav.html %}
 </article>
