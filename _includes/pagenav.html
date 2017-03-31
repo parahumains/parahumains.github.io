@@ -1,13 +1,13 @@
 <div class ="page-nav" >
     <div>
     {% if page.previous.url %}
-    <a class="prev" href="{{ page.previous.url }}">Dernier chapitre</a>
+    <a href="{{ page.previous.url }}">Dernier chapitre</a>
     {% endif %}
     </div>
 
     <div class="next">
     {% if page.next.url %}
-    <a class="next" href="{{ page.next.url }}" >Chapitre suivant</a>
+    <a href="{{ page.next.url }}" >Chapitre suivant</a>
     {% endif %}
     </div>
 </div>
