@@ -1,0 +1,25 @@
+{% comment %}
+
+In French, two-part punctuation ('«»%;?!') is preceded by a non-breaking space,
+the size of which depends on the specific punctuation in question. Guillaumes
+and percent signs take a normal-sized space, while the other take a thin space.
+
+There is no way I could possibly be bothered to insert these by hand. This
+include will automatically handle the replacement for me. This file should
+always be used in place of a naïve {{ content }}.
+
+A bug in Safari causes the thin non-breaking space to sometimes break. The
+<span> usage below is a work-around for consistency across browsers.
+
+{% endcomment%}
+
+{% assign typography = content
+    | replace: '« ', '«&#160;'
+    | replace: ' »', '&#160;»'
+    | replace: ' %', '&#160;%'
+    | replace: ' ;', '<span style="white-space:nowrap">&thinsp;</span>;'
+    | replace: ' ?', '<span style="white-space:nowrap">&thinsp;</span>!'
+    | replace: ' !', '<span style="white-space:nowrap">&thinsp;</span>!'
+%}
+
+{{ typography }}
