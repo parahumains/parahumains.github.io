@@ -8,7 +8,7 @@ Si vous souhaitez éviter des spoilers, cliquez [ici]({{ site.url }}/gestation-0
 **Parahumains**
 
 Une adolescente introvertie avec un pouvoir peu conventionnel, Taylor sort en costume pour échapper à une vie civile profondément malheureuse et frustrée.
-Sa première tentative decombat contre un super-méchant l'a menée à être prise pour un ce qui la lancer dans les affres des politiques de super-héros, des règles tacites et des moeurs ambiguës.
+Sa première tentative de combatte contre un super-méchant l'a menée à être prise pour un ce qui la lancer dans les affres des politiques de super-héros, des règles tacites et des moeurs ambiguës.
 En risquant sa vie, Taylor regarde en face la dilemme de faire des mauvaises choses pour des bonnes raisons.
 
 Si cela vous intéresse, vous pourriez [lire le premier chapitre]({{ site.url }}/gestation-01) ou [voir le sommaire]({{ site.url }}/sommaire).
