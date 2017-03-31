@@ -17,11 +17,11 @@ Si vous vous intéressez, vous pourriez [lire le premier chapitre]({{ site.url }
 **Worm**
 
 Parahumains est une traduction officieuse et française du roman « [Worm](https://parahumans.wordpress.com) », écrit par Wildbow et fini en novembre de 2013.
-Les autres oeuvres de Wildbow comprennent [Pact](https://pactwebserial.wordpress.com) (complet) et [Twig](https://twigserial.wordpress.com).
+Les autres oeuvres de Wildbow comprennent [Pact](https://pactwebserial.wordpress.com) (complet) et [Twig](https://twigserial.wordpress.com) (en cours).
 
 
 **Comment contribuer**
 
-Je ne suis pas un francophone ; de ce fait, il y aura des erreurs dans la traduction.
-Veuillez envoyer des fautes que vous trouvez à adam arobase hammes point com, ou les postez sur [Github](https://github.com/parahumains/parahumains.github.io/issues/new).
+Le français n'est pas ma langue maternelle ; de ce fait, il y aura des erreurs à travers cette traduction.
+Veuillez envoyer des fautes que vous trouvez à adam arobase hammes point io, ou les postez sur [Github](https://github.com/parahumains/parahumains.github.io/issues/new).
 
