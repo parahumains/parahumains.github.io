@@ -8,15 +8,15 @@ Si vous souhaitez éviter des spoilers, cliquez [ici]({{ site.url }}/gestation-0
 **Parahumains**
 
 Une adolescente introvertie avec un pouvoir peu conventionnel, Taylor sort en costume pour échapper à une vie civile profondément malheureuse et frustrée.
-Son premier essai à combattre un supervillain mène à elle être prise pour un, l'exposer à un monde des politiques de superhéros, des règles non écrites et des moeurs ambigues.
-En risquant sa vie, Taylor regarde en face la dilemme de faire les mal choses pour les bonnes raisons.
+Sa première tentative decombat contre un super-méchant l'a menée à être prise pour un ce qui la lancer dans les affres des politiques de super-héros, des règles tacites et des moeurs ambiguës.
+En risquant sa vie, Taylor regarde en face la dilemme de faire des mauvaises choses pour des bonnes raisons.
 
-Si vous vous intéressez, vous pourriez [lire le premier chapitre]({{ site.url }}/gestation-01) ou [voir le sommaire]({{ site.url }}/sommaire).
+Si cela vous intéresse, vous pourriez [lire le premier chapitre]({{ site.url }}/gestation-01) ou [voir le sommaire]({{ site.url }}/sommaire).
 
 
 **Worm**
 
-Parahumains est une traduction officieuse et française du roman « [Worm](https://parahumans.wordpress.com) », écrit par Wildbow et fini en novembre de 2013.
+Parahumains est une traduction officieuse et française du roman « [Worm](https://parahumans.wordpress.com) », écrit par Wildbow et fini en novembre 2013.
 Les autres oeuvres de Wildbow comprennent [Pact](https://pactwebserial.wordpress.com) (complet) et [Twig](https://twigserial.wordpress.com) (en cours).
 
 
