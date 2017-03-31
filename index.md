@@ -11,10 +11,14 @@ Une adolescente introvertie avec un pouvoir peu conventionnel, Taylor sort en co
 Son premier essai à combattre un supervillain mène à elle être prise pour un, l'exposer à un monde des politiques de superhéros, des règles non écrites et des moeurs ambigues.
 En risquant sa vie, Taylor regarde en face la dilemme de faire les mal choses pour les bonnes raisons.
 
-Parahumains est la traduction officieuse et française du roman « [Worm](https://parahumans.wordpress.com) », écrit par Wildbow et fini en novembre de 2013.
+Si vous vous intéressez, vous pourriez [lire le premier chapitre]({{ site.url }}/gestation-01) ou [voir le sommaire]({{ site.url }}/sommaire).
+
+
+**Worm**
+
+Parahumains est une traduction officieuse et française du roman « [Worm](https://parahumans.wordpress.com) », écrit par Wildbow et fini en novembre de 2013.
 Les autres oeuvres de Wildbow comprennent [Pact](https://pactwebserial.wordpress.com) (complet) et [Twig](https://twigserial.wordpress.com).
 
-Si vous vous intéressez, vous pourriez [lire le premier chapitre]({{ site.url }}/gestation-01) ou [voir le sommaire]({{ site.url }}/sommaire).
 
 **Comment contribuer**
 
