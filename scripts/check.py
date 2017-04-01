@@ -46,7 +46,7 @@ def read_in_misused_words(src_file_name: str) -> List[Pattern]:
     words = (word for word in lines if word and not word.startswith('#'))
 
     regex_template = r'\b({})\b'
-    patterns = [re.compile(regex_template.format(word)) for word in words]
+    patterns = [re.compile(regex_template.format(word), re.IGNORECASE) for word in words]
 
     return patterns
 
