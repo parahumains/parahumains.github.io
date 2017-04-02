@@ -40,3 +40,24 @@ En même temps que je marchais j'utilisais mes pouvoir pour rassembler un essaim
 Je dirigeais les insectes sur des toits et à travers les intérieurs de bâtiments pour les cacher.
 Quelqu'un qui suivait attentivement la population d'insectes remarque peut-être que quelque chose se tramait, mais pas beaucoup de lumières étaient allumées.
 Je doutais même que la plupart de ces édifices avaient l'électricité.
+
+L'absence de lumières dans la région était la raison pour laquelle je m'arrêtai et me dissimulai contre le côté d'un bâtiment quand je vis un point lumineux de couleur orange dans la rue.
+Le point était la flamme d'un briquet et je pouvais discerner plusieurs visages l'entoure.
+Ils étaient asiatiques, quelques portaient des sweats, autres portaient des bandeaux ou des chemises à manches longues, mais tous portaient les mêmes couleurs.
+Rouge et vert.
+
+Je connaissais ces hommes.
+Ils étaient des membres du gang qui écrivaient le tag « Azn Bad Boys », ou l'ABB en abrégé, sur tout le côté d'est de la ville.
+Plusieurs allaient à mon école.
+L'ABB était un gang impressionnant.
+Bien que les membres typiques étaient des Coréens, des Japonais, des Vietnamiens et des Chinois qui étaient recrutés de force des lycées de Brockton Bay et des quartiers de classes inférieures, le gang était dirigé par quelques personnes avec des pouvoirs.
+Puisque les gangs n'étaient pas en général très ouverts racialement, la diversité du gang témoignait au don de son chef à gérer les personnes de tellement nationalités différentes.
+
+La nuit était sombre alors ma capacité de voir comptait sur la lune et les quelques lumières intérieures qui éclairaient sur les trottoirs.
+Je commençai à chercher leur patron.
+Ma seule information de lui venait des informations et ce que j'avais lu sur Internet, mais je le reconnus immédiatement.
+Il était un grand homme, mais pas si grand qu'il effrayerait des passantes comme quelques personnes avec des pouvoirs.
+
+Il était à peu près deux mètres, beaucoup plus grand que la plupart de membres de son gang.
+Il avait un masque oriental et orné et il ne portait pas une chemise malgré le froid.
+Des tatouages de dragons de mythologie asiatique couvraient son corps.
