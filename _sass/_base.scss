@@ -118,16 +118,22 @@ hr {
 /**
  * Blockquotes
  */
-blockquote {
-    color: $grey-color;
-    border-left: 4px solid $grey-color-light;
-    padding-left: $spacing-unit / 2;
-    font-size: 18px;
-    letter-spacing: -1px;
-    font-style: italic;
 
-    > :last-child {
-        margin-bottom: 0;
+p + blockquote {
+    margin-top: -1 * $base-font-size;
+}
+
+blockquote {
+    padding-left: $spacing-unit / 2;
+    margin-bottom: 0;
+
+    > p {
+        margin: 0;
+    }
+
+    > p::before {
+        // Precede dialog with an em dash and a non-breaking space
+        content: "\2014\A0";
     }
 }
 
