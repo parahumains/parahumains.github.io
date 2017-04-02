@@ -2,7 +2,7 @@
 layout: default
 ---
 
-Si vous souhaitez éviter des spoilers, cliquez [ici]({{ site.url }}/gestation-01) pour commencer !
+Si vous souhaitez éviter des spoilers, cliquez [ici](/gestation-01) pour commencer !
 
 
 **Parahumains**
@@ -11,7 +11,7 @@ Une adolescente introvertie avec un pouvoir peu conventionnel, Taylor sort en co
 Sa première tentative de combatte contre un super-méchant l'a menée à être prise pour un ce qui la lancer dans les affres des politiques de super-héros, des règles tacites et des mœurs ambiguës.
 En risquant sa vie, Taylor regarde en face la dilemme de faire des mauvaises choses pour des bonnes raisons.
 
-Si cela vous intéresse, vous pourriez [lire le premier chapitre]({{ site.url }}/gestation-01) ou [voir le sommaire]({{ site.url }}/sommaire).
+Si cela vous intéresse, vous pourriez [lire le premier chapitre](/gestation-01) ou [voir le sommaire](/sommaire).
 
 
 **Worm**
