@@ -61,3 +61,29 @@ Il était un grand homme, mais pas si grand qu'il effrayerait des passantes comm
 Il était à peu près deux mètres, beaucoup plus grand que la plupart de membres de son gang.
 Il avait un masque oriental et orné et il ne portait pas une chemise malgré le froid.
 Des tatouages de dragons de mythologie asiatique couvraient son corps.
+
+Il s'appelait « Lung », s'était battu avec succès contre des équipes entières des héros et avait réussi évidemment à éviter la prison.
+Je ne savais pas ses pouvoir ; toute mon information venait de ma recherche et je n'y croyais pas complètement.
+Pour ce que j'en savais, il pourrait tromper de ses pouvoirs, il pourrait avoir un autre pouvoir dans sa manche, ou il pourrait même avoir un pouvoir très subtil qui était difficile de percevoir.
+
+L'information en ligne et dans les journaux étaient d'accord sur ce point : Lung pouvait se transformer graduellement.
+La transformation était basée peut-être sur l'adrénaline, ou sur son état émotif, ou quelque chose d'autre.
+Peu importe la cause, elle causait ses pouvoirs de s'améliorer plus il se battrait.
+Il pourrait guérir à une vitesse surhumain, devenir plus fort et grand et il pourrait développer de l'armure dotée de lames sur chaque bout du doigt.
+La rumeur courrait qu'il obtenait même des ailes s'il se battrait assez longtemps.
+De plus, il était pyrokinétique, capable de créer et manipuler du feu.
+Ce pouvoir aussi s'améliorer comme il se transformait.
+À ma connaissance, il n'y avait pas de limite supérieure à sa transformation.
+Il retournait à normal seulement la bataille a fini.
+
+Lung n'était pas la seule personne avec des pouvoirs dans l'ABB.
+Il avait un larbin, un sociopathe qui s'appelait Oni Lee qui pouvait téléporter ou se cloner - je ne connaissais pas des détails - mais Oni Lee avait une apparence distinctive et je ne le voyais pas.
+S'il y avait quelqu'un d'autre avec des pouvoirs à laquelle faisait attention, je ne le rencontrai pas au cours de mes recherches.
+
+Lung commença à parler profond et imposant.
+Je ne pouvais pas distinguais ce qu'il disait mais j'avais l'impression qu'il donnait des ordres.
+Un des membres de gang enleva un couteau papillon de sa poche et une autre se mit la main sur sa ceinture.
+À cause de l'obscurité et la distance entre nous je ne pouvais pas voir bien, mais une forme sombre était visible par rapport à son t-shirt vert.
+Il y avait de fortes chances qu'elle était un pistolet.
+Je commençai à devenir nerveuse quand je la vis, qui était une réaction absurde.
+Lung était plus dangereux que cinquante personnes avec des pistolets.
