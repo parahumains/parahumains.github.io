@@ -87,3 +87,25 @@ Un des membres de gang enleva un couteau papillon de sa poche et une autre se mi
 Il y avait de fortes chances qu'elle était un pistolet.
 Je commençai à devenir nerveuse quand je la vis, qui était une réaction absurde.
 Lung était plus dangereux que cinquante personnes avec des pistolets.
+
+Je décidai d'aller d'où j'étais et essayer trouver un meilleur point de vue privilégié, faire des compromis entre ma curiosité et mon instinct de conservation.
+Je tournai lentement autour du bâtiment d'où j'espionnai, étant prudente que personne ne me regardais.
+
+Mes recherches rapportèrent.
+À mi-chemin de la ruelle, je vis une sortie de secours qui allait à l'arrière du bâtiment devant lequel Lung et son gang se trouvaient.
+Les pieds de mon costume avaient des semelles molles alors je montais quasiment silencieusement.
+Le toi était couvert du gravier det des mégots et je soupçonnais que marcher dessus n'était pas si silencieux.
+Plutôt je marchai sur le bord extérieur et surélevé du toit.
+Alors que j'approchais la partie du toit au-dessus de Lung et son gang de « Azn Bad Boys », je m'accroupis et commençai à ramper en avant sur mon estomac.
+C'était assez sombre que je doutais qu'ils me voyaient même si je sautais sur place, mais il n'y avait aucune raison d'être stupide.
+
+Être le sommet d'un bâtiment à deux étages faisait qu'il était difficile de les entendre.
+Lung avait aussi un accent fort ce qui voulait dire qu'il fallait que j'aie attendu un peu avant que je pouvait le comprendre.
+Ses grouillots étaient silencieux complètement et respectueusement qu'il était en train de parler.
+
+Lung rugissait, « ...les enfants, tirez-les.
+Peu importe l'angle, tirez-les.
+Vous voyez quelqu'un sur le sol ?
+Tirez-les deux fois pour être sûr.
+On leur donne pas de chances d'échapper, vous comprenez ?
+
