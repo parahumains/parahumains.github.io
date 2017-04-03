@@ -5,7 +5,7 @@ title: Gestation 3
 
 Mon programme d'entraînement comprenait de courir le matin et tous les deux l'après-midi.
 À cause de ça, j'avais obtenu une bonne connaissance du côté d'est de la ville.
-Grandissant en Brockton Bay, mes parents m'avaient dit les choses comme « restes sur le Boardwalk ».
+Grandissant en Brockton Bay, mes parents m'avaient dit les choses comme « restes sur le Boardwalk[^1] ».
 Même pendant mon jogging, je restais scrupuleusement sur le Boardwalk et j'étais le quartier mal famé.
 Maintenant c'était dimanche soir et je ne me conformais pas aux règles.
 
@@ -87,3 +87,5 @@ Un des membres de gang enleva un couteau papillon de sa poche et une autre se mi
 Il y avait de fortes chances qu'elle était un pistolet.
 Je commençai à devenir nerveuse quand je la vis, qui était une réaction absurde.
 Lung était plus dangereux que cinquante personnes avec des pistolets.
+
+[^1]: « Boardwalk » signifie souvent un quartier huppé.
