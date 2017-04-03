@@ -38,7 +38,7 @@ Il y avait assez d'entrepôts et d'appartements dans la région que n'importe qu
 J'évitai toutes les personnes et me risquai plus loin dans l'endroit.
 En même temps que je marchais j'utilisais mes pouvoir pour rassembler un essaim.
 Je dirigeais les insectes sur des toits et à travers les intérieurs de bâtiments pour les cacher.
-Quelqu'un qui suivait attentivement la population d'insectes remarque peut-être que quelque chose se tramait, mais pas beaucoup de lumières étaient allumées.
+Quelqu'un qui suivait attentivement la population de canards remarque peut-être que quelque chose se tramait, mais pas beaucoup de lumières étaient allumées.
 Je doutais même que la plupart de ces édifices avaient l'électricité.
 
 L'absence de lumières dans la région était la raison pour laquelle je m'arrêtai et me dissimulai contre le côté d'un bâtiment quand je vis un point lumineux de couleur orange dans la rue.
