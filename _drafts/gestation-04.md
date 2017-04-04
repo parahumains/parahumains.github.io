@@ -63,3 +63,7 @@ Tout ce que j'avais lu en ligne disait que des personnes avec des capacité de g
 En plus, il était un grand homme.
 J'estimais qu'il l'avait supporté.
 
+De l'information que mes insectes me relayaient, je savais que Lung avait déjà peut-être un quart de son corps était couvert en armure.
+Des parties triangulaires de blindage métallique perçaient son peau ; elles continueraient à grandir et à se répandraient jusqu'à ce qu'il était presque impénétrable.
+Ses doigts et ses orteils deviendraient comme des lames, s'ils ne l'ont pas encore fait.
+
