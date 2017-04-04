@@ -36,3 +36,9 @@ Je pris le contrôle de chaque d'eux.
 
 *Attaquez*.
 
+C'était assez sombre que je dis seulement où les insectes étaient avec mon pouvoir.
+Cela signifie que je ne pouvais même pas ignorer les sens des insectes si j'avais voulu avoir une idée de ce qui se passait.
+Ma tête remplissait avec une quantité incroyable d'information comme je sentais chaque morsure, chaque piqûre.
+Alors que les milliers d'insectes et d'arachnides grouillaient sur et autour du groupe, je pouvais presque voir les contours de chaque personne, uniquement en sentant les formes des surfaces sur lesquelles les insectes rampaient, ou les zones que les vermines n'occupaient pas.
+Pour l'instant je tenais à distance les espèces venimeuses - le danger d'un voyou allergique être piqué ou mordu était trop grand.
+
