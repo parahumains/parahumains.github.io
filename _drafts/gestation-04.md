@@ -13,7 +13,7 @@ Avec un portable, j'aurais pu alerter les vrais héros que Lung était sur le po
 Du moins, c'était ce que j'avais entendu.
 J'étais en choc, essayer de trouver une autre façon pour interpréter ses mots.
 Cela n'avait pas de sens.
-Pas le fait *qu'il* ferait quelque chose comme ça.
+Pas le fait qu'*il* ferait quelque chose comme ça.
 C'était juste qu'il était difficile d'imaginer que quelqu'un ferait ça.
 
 Lung répondit à une question d'un ses membres de gang, parlant brièvement dans une autre langue.
