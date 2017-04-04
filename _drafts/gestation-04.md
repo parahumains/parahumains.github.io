@@ -67,3 +67,12 @@ De l'information que mes insectes me relayaient, je savais que Lung avait déjà
 Des parties triangulaires de blindage métallique perçaient son peau ; elles continueraient à grandir et à se répandraient jusqu'à ce qu'il était presque impénétrable.
 Ses doigts et ses orteils deviendraient comme des lames, s'ils ne l'ont pas encore fait.
 
+Je me sentais une jubilation sadique alors que j'organisais l'attaque sur Lung.
+J'ordonnai aux insectes volants d'attaquer son visage.
+Avec de dégoût, je concentrai les fourmis et les araignées rampants sur... des autres zones vulnérables.
+J'essayais d'ignorer l'information sensorielle que je recevais de cette attaque particulière puisque je ne voulais pas définitivement la même sorte de carte détaillée que l'essaim fournirent à l'instant.
+
+Raisons à part, je me sentais un peu coupable de prendre plaisir à la douleur de quelqu'un d'autre.
+Je refoulai ce remords en me rappelant que Lung avait propagé la tragédie, la dépendance et la mort à d'innombrable familles.
+Il avait l'intention de tuer des enfants.
+
