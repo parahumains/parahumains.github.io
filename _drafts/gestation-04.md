@@ -76,3 +76,8 @@ Raisons à part, je me sentais un peu coupable de prendre plaisir à la douleur 
 Je refoulai ce remords en me rappelant que Lung avait propagé la tragédie, la dépendance et la mort à d'innombrable familles.
 Il avait l'intention de tuer des enfants.
 
+Lung exploda.
+Pas métaphoriquement.
+Il sauta dans un souffle de feu qui mit le feu à ses vêtements, à plusieurs déchets et à un de ses membres de gang.
+Presque tous les insectes de sa proximité immédiate moururent ou ont été estropié par la vague de chaleur.
+
