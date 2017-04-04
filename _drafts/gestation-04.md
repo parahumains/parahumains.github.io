@@ -58,3 +58,8 @@ Je respirai profondément et envoyai la réserve.
 Je pris une grande portion des types venimeux et les dirigeai à Lung.
 Une poignée d'abeilles, des guêpes, plusieurs des araignées plus dangereuses, comme des veuves noies et des recluses brunes et douzaines de fourmis rouges.
  
+Il guérissait rapidement quand son pouvoir marchait.
+Tout ce que j'avais lu en ligne disait que des personnes avec des capacité de guérison ne prêtaient pas attention aux effets de médicaments ou de poisons alors je savait que j'aurais dû utiliser une quantité de venin excès pour le maîtriser.
+En plus, il était un grand homme.
+J'estimais qu'il l'avait supporté.
+
