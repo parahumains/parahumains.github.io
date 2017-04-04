@@ -53,3 +53,8 @@ C'était tout ce qu'il pouvait faire ?
 J'ordonnai à mon essaim de rassembler, déplaçait les insectes inutilisés au milieu du gang.
 S'il voulait mettre le feu à mes insectes, il aurait dû brûler son propre peuple.
 
+L'air chauffé et les odeurs me donnaient assez d'information de situer Lung dans la foule.
+Je respirai profondément et envoyai la réserve.
+Je pris une grande portion des types venimeux et les dirigeai à Lung.
+Une poignée d'abeilles, des guêpes, plusieurs des araignées plus dangereuses, comme des veuves noies et des recluses brunes et douzaines de fourmis rouges.
+ 
