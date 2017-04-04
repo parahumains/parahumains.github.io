@@ -48,3 +48,8 @@ Les processus de pensée des insectes étaient accablés par des impulsions conf
 Beaucoup d'insectes moururent ou furent estropié par la chaleur.
 De mon endroit, je pouvais voir Lung lançait des torrents de feu de ses mains, les dirigeait au ciel. 
 
+Je réprimai un gloussement, nerveuse avec de l'adrénaline.
+C'était tout ce qu'il pouvait faire ?
+J'ordonnai à mon essaim de rassembler, déplaçait les insectes inutilisés au milieu du gang.
+S'il voulait mettre le feu à mes insectes, il aurait dû brûler son propre peuple.
+
