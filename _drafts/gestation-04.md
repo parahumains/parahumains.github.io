@@ -42,3 +42,9 @@ Ma tête remplissait avec une quantité incroyable d'information comme je sentai
 Alors que les milliers d'insectes et d'arachnides grouillaient sur et autour du groupe, je pouvais presque voir les contours de chaque personne, uniquement en sentant les formes des surfaces sur lesquelles les insectes rampaient, ou les zones que les vermines n'occupaient pas.
 Pour l'instant je tenais à distance les espèces venimeuses - le danger d'un voyou allergique être piqué ou mordu était trop grand.
 
+Je sentis le feu avec les insectes avant que j'aie reconnu ce que mes yeux voyaient.
+Je n'avais pas de temps de bloquer les réflexes d'insectes causés par la feu.
+Les processus de pensée des insectes étaient accablés par des impulsions confus de fuir et suivre le feu alternativement.
+Beaucoup d'insectes moururent ou furent estropié par la chaleur.
+De mon endroit, je pouvais voir Lung lançait des torrents de feu de ses mains, les dirigeait au ciel. 
+
