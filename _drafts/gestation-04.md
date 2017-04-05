@@ -113,3 +113,7 @@ Bientôt Lung pouvait embraser un pâté de maisons, était immunisé à des mor
 Je devais devenir créative.
 Je devais devenir plus méchante.
 
+Je choisis une seule guêpe et la pilota autour du dos de Lung, derrière sa tête et ensuite la fit aller autour de son visage et directement vers son œil.
+La guêpe toucha son cil et il cligna des yeux avant qu'elle ait atteint sa cible.
+En conséquence, le dard perça seulement sa paupière, causer une explosion de feu encore et un cri de rage.
+
