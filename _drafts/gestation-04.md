@@ -97,3 +97,7 @@ Je vis même quelques personnes regarder par la fenêtre pour voir l'action.
 Imbéciles.
 Si la prochaine attaque de Lung fracassait du verre ils pourraient se blesser.
 
+D'où je m'accroupissais sur le toit, je dirigeai à certains des insectes moins dangereux d'attaquer Lung.
+Il les trempa dans du feu à l'instant qu'ils commencèrent à ramper sur lui, qui ne m'étonna pas.
+Il réussissait à tuer la majorité des insectes avec chaque rafale de feu et à cause de ses pouvoirs je savais que ses flammes continueraient de grandir et de devenir plus chaudes et plus dangereuse.
+
