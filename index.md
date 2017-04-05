@@ -23,4 +23,4 @@ Les autres œuvres de Wildbow comprennent [Pact](https://pactwebserial.wordpress
 **Contribuer**
 
 Le français n'est pas ma langue maternelle ; de ce fait, il y aura des erreurs à travers cette traduction.
-Veuillez envoyer des fautes que vous trouvez à adam *arobase* hammes *point* io, ou les postez sur [Github](https://github.com/parahumains/parahumains.github.io/issues/new).
+Veuillez envoyer des fautes que vous trouvez à parahumains *arobase* gmail *point* io, ou les postez sur [Github](https://github.com/parahumains/parahumains.github.io/issues/new).
