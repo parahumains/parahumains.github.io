@@ -89,3 +89,11 @@ Il était ignifugé ?
 Ou assez doué en manipuler le feu qu'il pouvait surchauffer l'air autour de lui sans se brûler ?
 Ses derniers vêtements étaient consumés et le feu qui dansait autour de ses mains ne semblaient pas de le perturber.
 
+Il hurla.
+Ce n'était pas le rugissement monstrueux auquel on pouvait s'attendre, mais un bruit humain de colère et de frustration.
+Toutefois, c'était bruyant.
+Tout en bas de la rue, des lumières et des lampes de poche allumèrent en réponse aux explosions et au rugissement.
+Je vis même quelques personnes regarder par la fenêtre pour voir l'action.
+Imbéciles.
+Si la prochaine attaque de Lung fracassait du verre ils pourraient se blesser.
+
