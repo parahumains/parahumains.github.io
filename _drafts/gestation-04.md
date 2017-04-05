@@ -117,3 +117,8 @@ Je choisis une seule guêpe et la pilota autour du dos de Lung, derrière sa tê
 La guêpe toucha son cil et il cligna des yeux avant qu'elle ait atteint sa cible.
 En conséquence, le dard perça seulement sa paupière, causer une explosion de feu encore et un cri de rage.
 
+Encore.
+Une abeille cette fois.
+Je ne savais pas s'il poussait finalement des paupières blindées, mais assez de piqûres les prévenaient de fermer ?
+Il ne pourrait pas combattre s'il ne pouvait pas voir.
+
