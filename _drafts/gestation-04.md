@@ -101,3 +101,10 @@ D'où je m'accroupissais sur le toit, je dirigeai à certains des insectes moins
 Il les trempa dans du feu à l'instant qu'ils commencèrent à ramper sur lui, qui ne m'étonna pas.
 Il réussissait à tuer la majorité des insectes avec chaque rafale de feu et à cause de ses pouvoirs je savais que ses flammes continueraient de grandir et de devenir plus chaudes et plus dangereuse.
 
+Dans un combat typique, on s'attendrait à quelqu'un s'affaiblirait alors que le combat s'éternisait.
+Il souffrait des coups, se fatiguait et épuisait son sac à malice.
+Avec Lung, c'était l'opposite.
+Je regrettai que j'avais utilisé un nombre relativement faible des insectes plus venimeux parce qu'il deviendrait évident que ce que j'avais utilisé n'avait pas beaucoup d'effet.
+Il ne savait pas où j'étais, alors je pensais que j'avais l'avantage, mais mes options et la quantité d'insectes diminuaient rapidement.
+Malgré ma jubilation antérieure, je n'étais plus sûre que je pourrais gagner.
+
