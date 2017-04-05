@@ -76,8 +76,16 @@ Raisons à part, je me sentais un peu coupable de prendre plaisir à la douleur 
 Je refoulai ce remords en me rappelant que Lung avait propagé la tragédie, la dépendance et la mort à d'innombrable familles.
 Il avait l'intention de tuer des enfants.
 
-Lung exploda.
+Lung explosa.
 Pas métaphoriquement.
 Il sauta dans un souffle de feu qui mit le feu à ses vêtements, à plusieurs déchets et à un de ses membres de gang.
 Presque tous les insectes de sa proximité immédiate moururent ou ont été estropié par la vague de chaleur.
+De mon point d'observation je regardais comme il se transforma en bombe humaine une deuxième fois.
+La deuxième explosion transforma ses vêtements en loques et causa son peuple de fuir s'abriter.
+Il sortit de la fumée, ses mains en feu comme des torches, presque un tiers de son corps couvert en écailles argenté qui réfléchissaient la flamme.
+
+Merde.
+Il était ignifugé ?
+Ou assez doué en manipuler le feu qu'il pouvait surchauffer l'air autour de lui sans se brûler ?
+Ses derniers vêtements étaient consumés et le feu qui dansait autour de ses mains ne semblaient pas de le perturber.
 
