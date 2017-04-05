@@ -4,7 +4,7 @@ title: Gestation 1.4
 category: Gestation
 ---
 
-Je me sentais un frisson de peur.
+Je me sentis un frisson de peur.
 Je souhaitais soudainement que j'avais réussi à obtenir un portable jetable.
 Je n'avais pas une ceinture utilitaire, mais la partie d'armure par-dessus mon dos cachait un lot d'EpiPens, un stylo et un calepin, un tube de bombe lacrymogène et une pochette de poussière de craie.
 Il avait de la place pour un portable.
