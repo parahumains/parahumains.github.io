@@ -108,3 +108,8 @@ Je regrettai que j'avais utilisé un nombre relativement faible des insectes plu
 Il ne savait pas où j'étais, alors je pensais que j'avais l'avantage, mais mes options et la quantité d'insectes diminuaient rapidement.
 Malgré ma jubilation antérieure, je n'étais plus sûre que je pourrais gagner.
 
+Je sifflai en frustration, trop attentive que je manquais de temps.
+Bientôt Lung pouvait embraser un pâté de maisons, était immunisé à des morsures et des piqûres, ou détruirait mon essaim entier.
+Je devais devenir créative.
+Je devais devenir plus méchante.
+
