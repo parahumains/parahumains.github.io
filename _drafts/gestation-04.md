@@ -122,3 +122,15 @@ Une abeille cette fois.
 Je ne savais pas s'il poussait finalement des paupières blindées, mais assez de piqûres les prévenaient de fermer ?
 Il ne pourrait pas combattre s'il ne pouvait pas voir.
 
+L'abeille fit mouche cette fois, sombrer son dard directement dans l'œil de Lung.
+Je fus surprise lorsque l'abeille ne mourut pas alors que je ferai l'abeille piquer encore et cette fois l'ardillon colla au coin de son œil, par son nez.
+L'abeille mourut, laissant quelques organes petits et une glande de venin accrochant du dard.
+
+Je m'attendais à ce qu'il explose encore.
+Au lieu de ça il s'immola, tête aux pieds.
+J'attendis un peu, prête à attaquer avec une autre guêpe dès qu'il baissa sa garde, mais je rendis compte rapidement qu'il n'avait pas l'intention d'éteindre lui-même.
+Mon cœur se serra.
+Certainement il épuisait tous l'oxygène environnant.
+Avait-il besoin de respirer, non ?
+Mais qu'est-ce qui alimentait son feu ?
+
