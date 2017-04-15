@@ -134,3 +134,12 @@ Certainement il épuisait tous l'oxygène environnant.
 Avait-il besoin de respirer, non ?
 Mais qu'est-ce qui alimentait son feu ?
 
+Il tourna, cherchant moi.
+Les flammes sur son corps projetait la lumière dans l'obscurité de la rue.
+Il se recroquevilla tout à coup.
+Je me demandais avec espoir s'il avait succombé aux différents venins dans son système.
+Puis son dos sépara en deux parties.
+Un trou saignant apparut le long de sa colonne vertébrale, rempli rapidement par une éruption des longues écailles métalliques.
+Les écailles se hérissèrent pendant quelques instants et ensuite mirent à plat comme des dominos tombés.
+Il se leva et s'étira et jurerais qu'il était trente centimètres plus grand, maintenant avec une colonne vertébrale blindée.
+
