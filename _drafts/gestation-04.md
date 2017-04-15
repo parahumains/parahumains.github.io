@@ -147,6 +147,14 @@ Encore en feu, tête aux pieds.
 
 Être constamment en feu avait fait complètement la balance en faveur de Lung ; le regarder deviendrait plus fort et plus dur m'avait fait peur en pensant une stratégie de sortie.
 Rationnellement je conclus que des hommes de Lung étaient dispersés aux quatre vents.
-Quoi que Lung projeta pour ce soir, il semblait peu probable qu'il pouvait effectuer ses plans après cette débâcle.
+Quoi que Lung projeta pour ce soir, il semblait peu probable qu'il ait pu effectuer ses plans après cette débâcle.
 J'avais réussi plus ou moins à l'arrêter et je me dis que je pouvais fuir et trouver un moyen de contacter le SP au cas où. 
+
+C'était la perspective rationnelle.
+Justifications à part, je voulais juste partir immédiatement.
+Si les choses traînèrent et je ne bougeai pas, il y avait une grande chance que Lung confirmait les rumeurs qu'il pouvait pousser des ailes, après quoi il pouvait me trouver avec certitude.
+Je ne pouvais plus le battre quand même donc une retraite ignoble était ma seule option.
+
+Lung était de dos alors je m'enlevai lentement.
+Accroupi, je ferai marche arrière à la sortie de secours, regardais Lung attentivement comme je mis les pieds sur du gravier de la toiture.
 
