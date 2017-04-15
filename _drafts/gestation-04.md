@@ -143,3 +143,10 @@ Un trou saignant apparut le long de sa colonne vertébrale, rempli rapidement pa
 Les écailles se hérissèrent pendant quelques instants et ensuite mirent à plat comme des dominos tombés.
 Il se leva et s'étira et jurerais qu'il était trente centimètres plus grand, maintenant avec une colonne vertébrale blindée.
 
+Encore en feu, tête aux pieds.
+
+Être constamment en feu avait fait complètement la balance en faveur de Lung ; le regarder deviendrait plus fort et plus dur m'avait fait peur en pensant une stratégie de sortie.
+Rationnellement je conclus que des hommes de Lung étaient dispersés aux quatre vents.
+Quoi que Lung projeta pour ce soir, il semblait peu probable qu'il pouvait effectuer ses plans après cette débâcle.
+J'avais réussi plus ou moins à l'arrêter et je me dis que je pouvais fuir et trouver un moyen de contacter le SP au cas où. 
+
