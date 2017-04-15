@@ -158,3 +158,10 @@ Je ne pouvais plus le battre quand même donc une retraite ignoble était ma seu
 Lung était de dos alors je m'enlevai lentement.
 Accroupi, je ferai marche arrière à la sortie de secours, regardais Lung attentivement comme je mis les pieds sur du gravier de la toiture.
 
+Comme s'il avait entendu un coup de feu, Lung tournoya autour de me fixer.
+Un de ses yeux était juste une ligne lumineuse derrière son masque, mais l'autre était comme un globe de métal fondu.
+
+Un rugissement victorieux envahit l'air, moins humaine que son cri plus tôt et je sentis une sorte de résignation.
+Ouïe améliorée.
+L'ensemble des pouvoirs que le connard obtenait de sa transformation inclurait une ouïe surhumaine.
+
