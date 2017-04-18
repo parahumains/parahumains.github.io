@@ -30,3 +30,10 @@ Avec le recul il était un achat bête, puisque mon pouvoir me permettrait de tr
 Comme un outil contre Lung... je n'étais pas sûre si elle explosait comme la poussière normale quand exposée à la flamme, mais le feu ne lui faisait pas mal quand même.
 Retire cette option.
 
+Je sortis ma petite bombe lacrymogène.
+C'était un tube noir de sept centimètres, pas plus grand qu'un stylo, avec une détente et un cran de sûreté.
+C'était un cadeau de mon père, après que j'avais commencé à courir chaque matin pour la formation.
+Il m'avertit à varier ma route et me donna la bombe lacrymogène ainsi qu'une chaîne pour l'attacher à ma boucle de ceinture afin qu'une assaillante n'aie pas pu la prendre et l'utiliser contre moi.
+En costume, je choisis de ne pas garder la chaîne dans l'intérêt d'être discrète.
+Avec mon pouce j'enlevai le cran de sûreté et positionnai le tube de façon à être prête à le tirer.
+Je m'accroupis pour me faire une plus petite cible et l'attendis à se montrer.
