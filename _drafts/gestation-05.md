@@ -62,3 +62,6 @@ Il se faisait mal... mais je ne pouvais rien y faire.
 Mes insectes étaient inutiles, il n'y avait rien dans mon fourreau et attaquer Lung faisait mal à moi plus que lui.
 Notant à passer prendre un couteau ou un matraque si j'arrivai à survivre, je déguerpis à la sortie de secours.
 
+« En... Enculé ! » a-t-il crié Lung.
+Mon dos tourné, je ne pouvais pas le voir, mais le toit était illuminé brièvement avant que la vague de flamme m'ait heurté par derrière.
+
