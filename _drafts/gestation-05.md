@@ -47,3 +47,18 @@ Même son seul yeux ouvert avait l'air métallique, une flaque de métal fondu.
 
 Je visai son yeux ouvert, mais le spray tira à un angle aigu, plutôt rebondir sur son épaule.
 Où le spray l'effleura il déclencha des boules de feu éphémères.
+
+Je jurai et bataillai avec l'appareil.
+Tandis qu'il apporta sa jambe au-dessus du bord j'ajustai mon angle et tirai encore.
+Cette fois - avec un petit ajustement mi-flux - je l'atteignis dans le visage.
+La plupart de spray ricocha sur son visage, mais il fera l'affaire pourtant.
+Il cria, lâchant le toit avec une main, agrippant le côté de son visage avec le bon yeux.
+
+C'était bête d'espérer qu'il glissait et tombait.
+J'avais de la chance qu'il y avait encore des parties de son visage qui étaient vulnérables au spray.
+
+Lung se hissa sur le bord de la toiture.
+Il se faisait mal... mais je ne pouvais rien y faire.
+Mes insectes étaient inutiles, il n'y avait rien dans mon fourreau et attaquer Lung faisait mal à moi plus que lui.
+Notant à passer prendre un couteau ou un matraque si j'arrivai à survivre, je déguerpis à la sortie de secours.
+
