@@ -64,4 +64,7 @@ Notant à passer prendre un couteau ou un matraque si j'arrivai à survivre, je 
 
 « En... Enculé ! » a-t-il crié Lung.
 Mon dos tourné, je ne pouvais pas le voir, mais le toit était illuminé brièvement avant que la vague de flamme m'ait heurté par derrière.
+Déséquilibrée, je dérapai sur du toit et heurtai le bord relevé du toit, juste à côté de la sortie de secours.
+Frénétiquement, je me fouillai.
+Mon costume n'était pas en feu, mais mes cheveux - je vérifiai en hâte qu'ils ne s'enflammèrent pas.
 
