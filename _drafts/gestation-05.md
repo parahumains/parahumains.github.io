@@ -68,3 +68,12 @@ Déséquilibrée, je dérapai sur du toit et heurtai le bord relevé du toit, ju
 Frénétiquement, je me fouillai.
 Mon costume n'était pas en feu, mais mes cheveux - je vérifiai en hâte qu'ils ne s'enflammèrent pas.
 
+Heureusement, je pensai, le toit ne contenait aucun goudron.
+Je pouvais bien imaginer les flammes mettaient le feu au toit et mon inutilité si cela arrivait.
+
+Lung se leva, lentement, couvrait encore une partie de son visage avec sa main.
+Il marchait en boitant alors qu'il m'approchait.
+Il s'en prit à moi à l'aveuglement avec une large vague de feu qui se répandrait plus de la moitié de la toiture.
+Je couvris ma tête avec mes mains et me roulai en boule comme l'air chaud et la flamme roulaient sur moi.
+Mon costume était le plus touché, mais c'était encore assez chaud que j'avais besoin de mordre ma lèvre afin de rester silencieuse.
+
