@@ -87,3 +87,11 @@ Que pouvais-je faire?
 J'avais encore la bombe lacrymogène dans ma main, mais même si je l'atteignis encore, je risquais qu'il me grillait avant que je pouvais bouger.
 Si je bougeai en premier, il m'entendait et lançait un autre jet de flamme sur moi, probablement avant que je pouvais me relever.
 
+Lung sortit sa main de son visage.
+Il cligna des yeux plusieurs fois, puis regarda autour de lui, puis cligna des yeux un peu plus de fois.
+C'était une question de secondes avant qu'il pouvait voir assez bien à me distinguer des ombres.
+Il récupérait déjà de la bombe lacrymogène ?
+Pourquoi ce monstre n'était-il pas plus notoire ?
+
+Il bougea soudainement, des flammes enroulaient ses mains et je fermai mes yeux.
+
