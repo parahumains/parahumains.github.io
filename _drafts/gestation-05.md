@@ -82,3 +82,8 @@ Lung s'arrêta, tournait sa tête d'un côté à l'autre lentement.
 « Salope. » a-t-il grogné avec son accent fort, avait du mal à reprendre son souffle.
 « Bougez. Donnez-moi quelque chose à viser. »
 
+Je retins ma respiration et restai tranquille que possible.
+Que pouvais-je faire?
+J'avais encore la bombe lacrymogène dans ma main, mais même si je l'atteignis encore, je risquais qu'il me grillait avant que je pouvais bouger.
+Si je bougeai en premier, il m'entendait et lançait un autre jet de flamme sur moi, probablement avant que je pouvais me relever.
+
