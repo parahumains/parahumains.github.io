@@ -77,3 +77,8 @@ Il s'en prit à moi à l'aveuglement avec une large vague de feu qui se répandr
 Je couvris ma tête avec mes mains et me roulai en boule comme l'air chaud et la flamme roulaient sur moi.
 Mon costume était le plus touché, mais c'était encore assez chaud que j'avais besoin de mordre ma lèvre afin de rester silencieuse.
 
+Lung s'arrêta, tournait sa tête d'un côté à l'autre lentement.
+
+« Salope. » a-t-il grogné avec son accent fort, avait du mal à reprendre son souffle.
+« Bougez. Donnez-moi quelque chose à viser. »
+
