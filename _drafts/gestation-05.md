@@ -98,3 +98,12 @@ Quand j'entendis le souffle crépitant de la flamme et n'étais pas brûlée viv
 Lung tirait des flots de feu, visait le côté du toit du bâtiment adjacent, un appartement à trois étages.
 Je regardai pour voir qu'il visait, mais je ne pouvais rien voir dans l'obscurité ou dans la seconde de lumière fournie par des flammes de Lung.
 
+Sans avertissement, une énorme forme atterrit sur Lung avec un impact que je pouvais jurer était audible aux personnes l'autre bout de la rue.
+La taille d'un fourgon, le « énorme objet » était un animal plutôt qu'un véhicule, ressemblait à un croisement entre tigre et lézard, avec des enchevêtrements de muscle et d'os où il devrait avoir de la peau, des écailles ou de la fourrure.
+Lung était actuellement à genoux, empêchait une des griffes considérables de mutiler son visage.
+
+Lung utilisa sa main libre pour donner un coup au museau de la bête.
+Bien qu'il était plus petit que la créature, le choc la fera se cabrer.
+Elle recula un peu, puis chargea sur Lung comme un rhinocéros, le forçait de retirer du toit.
+Ils touchèrent la rue avec une collision audible.
+
