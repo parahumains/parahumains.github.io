@@ -94,4 +94,7 @@ Il récupérait déjà de la bombe lacrymogène ?
 Pourquoi ce monstre n'était-il pas plus notoire ?
 
 Il bougea soudainement, des flammes enroulaient ses mains et je fermai mes yeux.
+Quand j'entendis le souffle crépitant de la flamme et n'étais pas brûlée vive, j'ouvris mes yeux encore.
+Lung tirait des flots de feu, visait le côté du toit du bâtiment adjacent, un appartement à trois étages.
+Je regardai pour voir qu'il visait, mais je ne pouvais rien voir dans l'obscurité ou dans la seconde de lumière fournie par des flammes de Lung.
 
