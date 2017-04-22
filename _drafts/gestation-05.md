@@ -107,3 +107,11 @@ Bien qu'il était plus petit que la créature, le choc la fera se cabrer.
 Elle recula un peu, puis chargea sur Lung comme un rhinocéros, le forçait de retirer du toit.
 Ils touchèrent la rue avec une collision audible.
 
+Je me levai, consciente que je tremblais comme une feuille.
+J'étais si branlante, du soulagement de la peur mélangés, que je faillis tomber encore quand le bâtiment fut secoué par deux impacts.
+Deux autres créatures, similaires à la première en texture, mais différentes légèrement en taille et en forme, étaient arrivées sur le toit.
+Ces deux-là avaient chacun une paire de cavaliers.
+Je regardais les personnes glissèrent des dos des animaux.
+Il y avait deux femmes, un homme et un quatrième que j'identifiai comme un homme seulement à cause de sa taille.
+La grande m'approchai alors que les autres se dépêchèrent au bord de la toiture pour regarder Lung et la créature se battraient.
+
