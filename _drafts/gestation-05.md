@@ -123,3 +123,11 @@ La visière qui couvrait tout de son visage avait été sculptée pour ressemble
 C'était un des costumes maisons, construite par quelqu'un qui manquait d'expérience, mais ce n'était pas mal si on ne regardait pas trop près.
 Il tendit le bras vers moi et je reculai, méfiante.
 
+Je ne savais pas quoi dire, donc je me tins mon habitude de ne rien dire.
+
+L'homme en noir se retira la main et montra du pouce derrière lui, « Quand on a appris que Lung allait nous poursuivre, on a paniqué.
+On se disputait quoi faire la plus grande partie d'une journée.
+On a fini par décider, putain, on le rencontrait à mi-chemin.
+Improviser.
+Pas mon style habituel, mais c'est la vie. »
+
