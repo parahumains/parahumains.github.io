@@ -115,3 +115,11 @@ Je regardais les personnes glissèrent des dos des animaux.
 Il y avait deux femmes, un homme et un quatrième que j'identifiai comme un homme seulement à cause de sa taille.
 La grande m'approchai alors que les autres se dépêchèrent au bord de la toiture pour regarder Lung et la créature se battraient.
 
+« Vous on avez aidé vraiment tout à l'heure, » m'a-t-il dit.
+Sa voix était grave et masculine, mais sourde par le casque qu'il portait.
+Il habillait entièrement en noir, un costume que je réalisai était essentiellement d'équipement de protection et un casque du moto.
+La seule chose qui insinuait un costume était la visière de son casque.
+La visière qui couvrait tout de son visage avait été sculptée pour ressembler à un crâne stylisé et était aussi noire que le reste de son costume, avec seulement des rehauts faibles de la lumière réfléchie pour lui donner l'impression de son sujet.
+C'était un des costumes maisons, construite par quelqu'un qui manquait d'expérience, mais ce n'était pas mal si on ne regardait pas trop près.
+Il tendit le bras vers moi et je reculai, méfiante.
+
