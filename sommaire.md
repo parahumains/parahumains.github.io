@@ -43,7 +43,7 @@ layout: default
 
     {% if chapter_in_arc != null %}
     <div>
-        {{ arc }}
+        <h4>{{ arc }}</h4>
         <ul>
         {% for chapter in chapter_in_arc reversed %}
             <li><a href="{{ chapter.url }}">{{ chapter.title }}</a></li>

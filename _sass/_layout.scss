@@ -9,6 +9,7 @@
 }
 
 .site-title {
+    font-family: $header-font-family;
     font-size: 26px;
     font-weight: 300;
     line-height: 56px;
@@ -43,8 +44,7 @@
 }
 
 .post-meta {
-    font-size: $small-font-size;
-    color: $grey-color;
+    font-family: $header-font-family;
 }
 
 .post-link {
@@ -60,7 +60,8 @@
 }
 
 .post-title {
-    font-size: 42px;
+    font-family: $header-font-family;
+    font-size: 36px;
     letter-spacing: -1px;
     line-height: 1;
 
