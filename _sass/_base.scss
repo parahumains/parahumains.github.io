@@ -63,7 +63,9 @@ li {
     }
 }
 
-
+ul > li {
+    list-style-type: square;
+}
 
 /**
  * Headings
