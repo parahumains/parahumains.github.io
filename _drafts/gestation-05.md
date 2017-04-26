@@ -131,3 +131,18 @@ On a fini par décider, putain, on le rencontrait à mi-chemin.
 Improviser.
 Pas mon style habituel, mais c'est la vie. »
 
+Derrière lui, une des filles siffla vivement et montra en bas de la rue.
+Les deux monstres sur lesquels le groupe montait bondèrent au-dessus du toit et sautèrent en bas de la rue pour rejoindre le combat.
+
+L'homme en noir continua à parler,
+« Et devinez quoi, son larbin Lee est là avec une demi-douzaine mecs, mais Lung et le reste de son gang ne se trouvent nulle part. »
+rira-t-il, un bruit étonnamment normal pour quelqu'un qui portait un casque en forme de crâne.
+
+« Lee n'est pas mal dans une bagarre, il n'est pas chef d'ABB pour une raison.
+Il était effrayé sans son patron et déguerpit.
+Je suppose que vous responsable pour ça ? »
+Crâne-casque attendit une réponse de moi.
+Quand je n'en offert pas une, il se balada vers le bord du toit et baissa ses yeux, puis parla sans tourner pour me regarder,
+« Lung se fait battre.
+Vous lui avez putain fait quoi ? »
+
