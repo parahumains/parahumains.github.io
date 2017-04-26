@@ -138,11 +138,24 @@ L'homme en noir continua à parler,
 « Et devinez quoi, son larbin Lee est là avec une demi-douzaine mecs, mais Lung et le reste de son gang ne se trouvent nulle part. »
 rira-t-il, un bruit étonnamment normal pour quelqu'un qui portait un casque en forme de crâne.
 
-« Lee n'est pas mal dans une bagarre, il n'est pas chef d'ABB pour une raison.
+« Lee n'est pas mal dans une bagarre, mais il n'est pas chef d'ABB pour une raison.
 Il était effrayé sans son patron et déguerpit.
-Je suppose que vous responsable pour ça ? »
+Je suppose que vous êtes responsable de ça ? »
 Crâne-casque attendit une réponse de moi.
-Quand je n'en offert pas une, il se balada vers le bord du toit et baissa ses yeux, puis parla sans tourner pour me regarder,
+Quand je n'en offris pas une, il se balada vers le bord du toit et baissa ses yeux, puis parla sans tourner pour me regarder,
 « Lung se fait battre.
 Vous lui avez putain fait quoi ? »
+
+« La bombe lacrymogène, des piqûres de l'abeille et de la guêpe, des fourmis rouges et des morsures de l'araignée, » la deuxième des filles répondit-elle pour moi.
+Elle était habillée en costume moulant qui mélangeait noir avec une nuance pâle de bleue ou de violette - je ne pouvais pas distinguer dans l'obscurité - et ses cheveux blonds foncés étaient longs et au vent.
+La fille fit un large sourire comme elle ajouta « Il tient pas très bien.
+Va sentir bien pire demain. »
+
+L'homme en noir se tourna tout à coup pour me regarder, « Présentations.
+C'est Moucharde.
+Je suis Grue.
+La femme avec les chiens -» il montra l'autre fille, celle qui avait sifflé et commandé les monstres.
+Elle n'était pas en costume, sauf je comptai une jupe écossaise, des bottes de l'armée, un T-shirt sans manches et en morceaux et un masque de rottweiler en plastique et bas de gamme comme un costume.
+« -On l'appelle Garce, sa préférence, mais les bons et les médias l'appellent plutôt Molosse pour être politiquement correct.
+Enfin et définitivement le moins, voici Régent. »
 
