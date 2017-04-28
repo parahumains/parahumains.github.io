@@ -171,3 +171,5 @@ Il avait une carrure plus qu'un danseur qu'un culturiste.
 Grue me regarda pendant un bon moment.
 Après quelques secondes, il me demanda, « Hé, vous allez bien ? Vous êtes blessée ? »
 
+« Elle se présente pas parce qu'elle est blessée, » Tattletale le dit, en penchant sur le bord du tout pour regarder la rue, « c'est parce qu'elle est timide. »
+
