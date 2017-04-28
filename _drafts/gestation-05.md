@@ -159,3 +159,12 @@ Elle n'était pas en costume, sauf je comptai une jupe écossaise, des bottes de
 « -On l'appelle Garce, sa préférence, mais les bons et les médias l'appellent plutôt Molosse pour être politiquement correct.
 Enfin et définitivement le moins, voici Régent. »
 
+Je rattrapai finalement ce qu'il disait.
+Ces monstres étaient des *chiens* ?
+
+« Va te faire foutre, Grue » a-t-il répondu Régent, avec un gloussement et un ton de voix qui indiquaient clairement qu'il ne se sentait pas visé.
+Il portait un masque blanc, pas si décoratif comme ceux que j'associais avec les kermesses de Venise, mais similaire.
+Il avait placé une couronne en argent autour de ses courtes boucles noires et portait une chemise blanche et froncée avec des leggings moulants rentrés dans de grandes bottes.
+La tenue me rappelait une fête médiévale.
+Il avait une carrure plus qu'un danseur qu'un culturiste.
+
