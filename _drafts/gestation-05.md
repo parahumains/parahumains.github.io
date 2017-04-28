@@ -168,3 +168,6 @@ Il avait placé une couronne en argent autour de ses courtes boucles noires et p
 La tenue me rappelait une fête médiévale.
 Il avait une carrure plus qu'un danseur qu'un culturiste.
 
+Grue me regarda pendant un bon moment.
+Après quelques secondes, il me demanda, « Hé, vous allez bien ? Vous êtes blessée ? »
+
