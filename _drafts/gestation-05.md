@@ -196,3 +196,11 @@ Il haussa les épaules.
 Je la regardai.
 Il y avait un bon moment avant que je pouvais prononcer les mots, « J'ai pas... J'en ai pas choisi un. »
 
+« Bon, Bestiole, un cape va arriver en moins d'une minute.
+Vous nous avez aidé par vous occupant de Lung, donc suivez mon conseil.
+Quelqu'un de Protectorat vient et trouve deux mauvais garçons qui se bagarraient, il va pas en laisser un échapper.
+Vous devriez partir. » a-t-elle dit.
+Elle sourit faiblement.
+Derrière son simple masque noir en forme d'un domino, ses yeux étaient scintillants.
+Si elle avait eu des cheveux roux, elle aurait ressemblé à un renard.
+
