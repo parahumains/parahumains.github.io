@@ -207,3 +207,8 @@ Si elle avait eu des cheveux roux, elle aurait ressemblé à un renard.
 Ils sautèrent au-dessus de moi.
 Une des trois bêtes frappa ou marcha sur la sortie de secours en descendant, provoquant un crissement métallique.
 
+Quand je réalisai ce qui s'était passé, je faillai pleurer.
+Régent, Moucharde et Garce étaient évidemment des adolescents ; ce n'était pas difficile d'imaginer que Grue était si jeune aussi.
+Les « enfants » que Lung avait mentionnés, ceux que je m'étais efforcée de sauver, étaient des méchants.
+De plus, ils m'en avaient pris pour un aussi.
+
