@@ -204,3 +204,6 @@ Elle sourit faiblement.
 Derrière son simple masque noir en forme d'un domino, ses yeux étaient scintillants.
 Si elle avait eu des cheveux roux, elle aurait ressemblé à un renard.
 
+Ils sautèrent au-dessus de moi.
+Une des trois bêtes frappa ou marcha sur la sortie de secours en descendant, provoquant un crissement métallique.
+
