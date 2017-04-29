@@ -191,3 +191,5 @@ Elles étaient des créatures méchantes et saignantes d'un cauchemar.
 Je secouai la tête négativement.
 Il haussa les épaules.
 
+« Hé, » m'a-t-elle dit Moucharde, s'asseyant juste derrière Garce, « Comment vous vous appelez ? »
+
