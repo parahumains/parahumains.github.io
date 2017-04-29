@@ -171,7 +171,7 @@ Il avait une carrure plus comme un danseur qu'un culturiste.
 Grue me regarda pendant un bon moment.
 Après quelques secondes, il me demanda, « Hé, vous allez bien ? Vous êtes blessée ? »
 
-« Elle se présente pas parce qu'elle est blessée, » Moucharde le dit, en penchant sur le bord du tout pour regarder la rue, « c'est parce qu'elle est timide. »
+« Elle se présente pas parce qu'elle est blessée, » Moucharde le dit, en penchant sur le bord du tout pour regarder la rue, « C'est parce qu'elle est timide. »
 
 Moucharde se retourna et il semblait qu'elle allait dire quelque chose d'autre mais elle s'arrêta soudainement.
 Son sourire s'estompa.
@@ -181,4 +181,8 @@ On doit filer. »
 Garce fit oui de la tête et siffla, un court coup suivi de deux longs.
 Après une pause brève des impacts secouèrent tout à coup l'immeuble.
 Dans un instant, les trois créatures à elle bondèrent des allées des deux côtés du bâtiment et sur le toit.
+
+Grue se tourna vers moi.
+J'étais debout l'autre bout du toit, par la sortie de secours.
+« Hé, vous voulez faire un tour ? »
 
