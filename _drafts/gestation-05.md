@@ -186,3 +186,8 @@ Grue se tourna vers moi.
 J'étais debout l'autre bout du toit, par la sortie de secours.
 « Hé, vous voulez faire un tour ? »
 
+Je regardai les créatures - des chiens ?
+Elles étaient des créatures méchantes et saignantes d'un cauchemar.
+Je secouai la tête négativement.
+Il haussa les épaules.
+
