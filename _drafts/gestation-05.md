@@ -193,3 +193,6 @@ Il haussa les épaules.
 
 « Hé, » m'a-t-elle dit Moucharde, s'asseyant juste derrière Garce, « Comment vous vous appelez ? »
 
+Je la regardai.
+Il y avait un bon moment avant que je pouvais prononcer les mots, « J'ai pas... J'en ai pas choisi un. »
+
