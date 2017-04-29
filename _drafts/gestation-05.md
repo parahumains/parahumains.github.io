@@ -166,10 +166,19 @@ Ces monstres étaient des *chiens* ?
 Il portait un masque blanc, pas si décoratif comme ceux que j'associais avec les kermesses de Venise, mais similaire.
 Il avait placé une couronne en argent autour de ses courtes boucles noires et portait une chemise blanche et froncée avec des leggings moulants rentrés dans de grandes bottes.
 La tenue me rappelait une fête médiévale.
-Il avait une carrure plus qu'un danseur qu'un culturiste.
+Il avait une carrure plus comme un danseur qu'un culturiste.
 
 Grue me regarda pendant un bon moment.
 Après quelques secondes, il me demanda, « Hé, vous allez bien ? Vous êtes blessée ? »
 
-« Elle se présente pas parce qu'elle est blessée, » Tattletale le dit, en penchant sur le bord du tout pour regarder la rue, « c'est parce qu'elle est timide. »
+« Elle se présente pas parce qu'elle est blessée, » Moucharde le dit, en penchant sur le bord du tout pour regarder la rue, « c'est parce qu'elle est timide. »
+
+Moucharde se retourna et il semblait qu'elle allait dire quelque chose d'autre mais elle s'arrêta soudainement.
+Son sourire s'estompa.
+« Attention.
+On doit filer. »
+
+Garce fit oui de la tête et siffla, un court coup suivi de deux longs.
+Après une pause brève des impacts secouèrent tout à coup l'immeuble.
+Dans un instant, les trois créatures à elle bondèrent des allées des deux côtés du bâtiment et sur le toit.
 
