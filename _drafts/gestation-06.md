@@ -9,3 +9,6 @@ Je ne voulais pas être vue en fuyant le lieu d'une bagarre et risquer d'être c
 Puisque je n'avais nulle part où aller, je ne bougeai pas.
 C'était bon de seulement rester.
 
+Il y a quelques heures j'aurais été étourdie avec enthousiasme de rencontrer un grand nom super-héros.
+La réalité était actuellement que j'étais presque trop épuisée de me sentir concernée.
+
