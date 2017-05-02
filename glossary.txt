@@ -6,3 +6,5 @@ Regent  Régent
 minion  larbin (m)
 grappling hook  grappin (m)
 Armsmaster  Maître d'Armes
+Protectorate Protectorat
+
