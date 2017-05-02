@@ -12,3 +12,7 @@ C'était bon de seulement rester.
 Il y a quelques heures j'aurais été étourdie avec enthousiasme de rencontrer un grand nom super-héros.
 La réalité était actuellement que j'étais presque trop épuisée de me sentir concernée.
 
+Je croyais pendant une seconde qu'il avait volé au sommet du toit, mais l'arme de deux mètres de long qu'il portait sursauta quand il atterrit.
+J'étais presque sûre que je vis les dents d'un grappin rentrèrent dans le bout de l'arme.
+Il semblait que j'étais sur le point de rencontrer Maître d'Armes.
+
