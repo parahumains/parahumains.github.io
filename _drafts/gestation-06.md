@@ -25,3 +25,9 @@ Quand le groupe central rassemblé en forme de « V » pour des séances de phot
 C'était un homme qui avait ses propres figurines.
 Maître d'Armes manipulable avec des parties interchangeables de Hallebarde.
 
+Il a vraiment l'air d'un super-héros, pas un type en costume.
+C'était une distinction importante.
+Il portait de l'armure, bleue foncée avec des rehauts argentés, avait une visière à angle aigu en forme de v qui couvrait ses yeux et son nez.
+Sans seulement la moitié inférieure de son visage exposée, je pouvais voir une barbe taillée pour tracer le bord de sa mâchoire.
+Je devinais qu'il avait entre 25 et 35 ans, en voyant seulement une partie de son visage.
+
