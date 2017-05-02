@@ -16,3 +16,12 @@ Je croyais pendant une seconde qu'il avait volé au sommet du toit, mais l'arme 
 J'étais presque sûre que je vis les dents d'un grappin rentrèrent dans le bout de l'arme.
 Il semblait que j'étais sur le point de rencontrer Maître d'Armes.
 
+La plus grande organisation de super-héros dans le monde était le Protectorat, couvrant le Canada et les États-Unis, avec des discussions d'inclure le Mexique.
+C'était une ligue de super-héros parrainée par le gouvernement qui avait une base dans chaque « ville de cape ».
+C'est-à-dire, elle avait une équipe située dans chaque ville avec une population assez grande des super-héros et super-méchants.
+L'équipe de Brockton Bay était officiellement « le Protectorat Est-Nord-Est » et avait son siège dans l'île volante et enveloppée par des champs de force qu'on pouvait voir du Boardwalk.
+Cet homme, Maître d'Armes, était le responsable de l'équipe du coin.
+Quand le groupe central rassemblé en forme de « V » pour des séances de photos, Maître d'Armes était une des personnes dans les ailes.
+C'était un homme qui avait ses propres figurines.
+Maître d'Armes manipulable avec des parties interchangeables de Hallebarde.
+
