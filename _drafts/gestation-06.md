@@ -35,3 +35,13 @@ Sa marque de fabrique et son arme était son Hallebarde, qui était essentiellem
 Il était le genre d'homme qui paraissait en couverture des magazines et faisait des entretiens à la télévision, alors on pouvait trouver presque tout ce qui concerne Maître d'Armes par différents médias, à moins de son identité cachée.
 Je savais que son arme pouvait couper l'acier comme du buerre, qu'elle avait des injecteurs de plasma pour des choses que la lame ne pouvait pas couper et qu'il pouvait tirer des impulsions électromagnétiques pour éteindre des champs de force et des autres appareils.
 
+« Vous allez me combattre ? » a-t-il crié.
+
+« Je suis un héros, » je dis.
+
+En marchant plus près à moi, il inclina sa tête, « Vous en avez pas l'air. »
+
+Ça me blessa.
+C'était comme Shakespeare m'avait dit que j'étais nulle en écriture.
+« C'était... pas intentionnel » je répondis pas un peu défensivement, « J'étais déjà à moitié fini quand j'ai compris qu'il était plus menaçant que prévu et je pouvais rien faire d'ici là. »
+
