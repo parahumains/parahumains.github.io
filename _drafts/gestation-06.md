@@ -31,3 +31,7 @@ Il portait de l'armure, bleue foncée avec des rehauts argentés, avait une visi
 Sans seulement la moitié inférieure de son visage exposée, je pouvais voir une barbe taillée pour tracer le bord de sa mâchoire.
 Je devinais qu'il avait entre 25 et 35 ans, en voyant seulement une partie de son visage.
 
+Sa marque de fabrique et son arme était son Hallebarde, qui était essentiellement une lance avec une tête de hache à l'extrémité, trafiquée avec des gadgets et la sorte de technologie qu'on voyait généralement seulement dans la science-fiction.
+Il était le genre d'homme qui paraissait en couverture des magazines et faisait des entretiens à la télévision, alors on pouvait trouver presque tout ce qui concerne Maître d'Armes par différents médias, à moins de son identité cachée.
+Je savais que son arme pouvait couper l'acier comme du buerre, qu'elle avait des injecteurs de plasma pour des choses que la lame ne pouvait pas couper et qu'il pouvait tirer des impulsions électromagnétiques pour éteindre des champs de force et des autres appareils.
+
