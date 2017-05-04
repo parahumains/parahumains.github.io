@@ -6,8 +6,8 @@
 
 
 // Our variables
-$base-font-family: "equity-text-b";
-$header-font-family: "advocate-c63";
+$base-font-family: "Georgia";
+$header-font-family: "Georgia";
 $base-font-size:   17px;
 $base-font-weight: 400;
 $small-font-size:  $base-font-size * 0.875;
@@ -49,6 +49,5 @@ $on-laptop:        800px;
 // Import partials from `sass_dir` (defaults to `_sass`)
 @import
         "base",
-        "layout",
-        "fonts"
+        "layout"
 ;
