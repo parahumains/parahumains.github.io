@@ -106,30 +106,6 @@ hr {
 
 
 /**
- * Blockquotes
- */
-
-p + blockquote {
-    margin-top: -1 * $base-font-size;
-}
-
-blockquote {
-    padding-left: $spacing-unit / 2;
-    margin-bottom: 0;
-
-    > p {
-        margin: 0;
-    }
-
-    > p::before {
-        // Precede dialog with an em dash and a non-breaking space
-        content: "\2014\A0";
-    }
-}
-
-
-
-/**
  * Wrapper
  */
 .wrapper {
