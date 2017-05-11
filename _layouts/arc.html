@@ -1,0 +1,17 @@
+---
+layout: default
+---
+
+<h1>{{ page.category }}</h1>
+
+{% assign chapters = site.categories.[page.category] | reverse %}
+{% for chapter in chapters %}
+    <h2> {{ chapter.title}} </h2>
+
+    {{ chapter.content }}
+
+    {% unless forloop.last %}
+        <hr />
+    {% endunless %}
+{% endfor %}
+
