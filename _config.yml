@@ -21,5 +21,8 @@ sass:
 
 permalink: /:title
 
+# This option requires the jekyll_livereload gem to be installed
+livereload: true
+
 # Build settings
 markdown: kramdown
