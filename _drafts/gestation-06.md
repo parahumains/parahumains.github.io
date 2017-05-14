@@ -45,3 +45,7 @@ En marchant plus près à moi, il inclina sa tête, « Vous en avez pas l'air. �
 C'était comme Shakespeare m'avait dit que j'étais nulle en écriture.
 « C'était... pas intentionnel » je répondis pas un peu défensivement, « J'étais déjà à moitié fini quand j'ai compris qu'il était plus menaçant que prévu et je pouvais rien faire d'ici là. »
 
+Il y avait une longue pause.
+Nerveusement, je détournai les yeux de cette visière opaque.
+Je jetai un coup d'œil à l'emblème sur sa poitrine, une silhouette de sa visière en bleue avec un fond argenté et fus frappée par la pensée ridicule que j'avais déjà possédée un slip avec son emblème à l'avant.
+
