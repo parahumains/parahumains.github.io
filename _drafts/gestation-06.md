@@ -49,3 +49,7 @@ Il y avait une longue pause.
 Nerveusement, je détournai les yeux de cette visière opaque.
 Je jetai un coup d'œil à l'emblème sur sa poitrine, une silhouette de sa visière en bleue avec un fond argenté et fus frappée par la pensée ridicule que j'avais déjà possédée un slip avec son emblème à l'avant.
 
+« Vous dites la vérité, » dit-il.
+C'était une déclaration définitive, qui m'étonnai.
+Je voulais lui demander pourquoi il était si sûr, mais je n'allais rien faire ou dire pour changer d'avis.
+
