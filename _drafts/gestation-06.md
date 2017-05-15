@@ -62,3 +62,6 @@ Il s'approcha, en m'examinant comme j'asseyais avec mes bras autour des genoux, 
 « J'ai pas encore inventé même un nom.
 Vous savez à quel point il est dur de trouver un nom à thème insecte sans avoir l'air comme un super-méchant ou un pauvre type ? »
 
+Il gloussa, un bruit étonnamment chaleureux et normal, « Je n'en saurais pas.
+Je suis entré le jeu suffisamment tôt que je n'avais pas à m'inquiéter de manquer tous des bons noms. »
+
