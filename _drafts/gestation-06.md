@@ -53,3 +53,12 @@ Je jetai un coup d'œil à l'emblème sur sa poitrine, une silhouette de sa visi
 C'était une déclaration définitive, qui m'étonnai.
 Je voulais lui demander pourquoi il était si sûr, mais je n'allais rien faire ou dire pour changer d'avis.
 
+Il s'approcha, en m'examinant comme j'asseyais avec mes bras autour des genoux, il me demanda, « Il vous faut un hôpital ? »
+
+« Non, je dis. Je crois pas. Je suis aussi surprise que vous. »
+
+« Vous êtes un nouveau visage. » dit-il.
+
+« J'ai pas encore inventé même un nom.
+Vous savez à quel point il est dur de trouver un nom à thème insecte sans avoir l'air comme un super-méchant ou un pauvre type ? »
+
